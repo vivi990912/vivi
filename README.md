@@ -37,5 +37,5 @@ Assessed the assumptions and found correlations between variables using differen
 
 
 ## Connect with Me
-- [LinkedIn]([https://www.linkedin.com/in/shangying-vivian-xu-670705196/)
+- [LinkedIn](https://www.linkedin.com/in/shangying-vivian-xu-670705196/)
 
